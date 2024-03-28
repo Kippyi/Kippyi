@@ -23,7 +23,7 @@ Hey there! I'm Kip, also known as Kippyi, and I'm one of the founders of Cipher 
 
 
 ## Contact
-Feel free to reach out to me if you have any questions, collaboration opportunities, or just want to chat! You can find me on Discord as Kip#0001 or Kippyi#0001.
+Feel free to reach out to me if you have any questions, collaboration opportunities, or just want to chat! You can find me on Discord as Kip4284
 
 ## Let's Connect!
 - [Cipher Systems Discord](https://ciphersystems.xyz/discord)
